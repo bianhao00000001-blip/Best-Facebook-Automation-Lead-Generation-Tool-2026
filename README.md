@@ -44,8 +44,8 @@
 ## 🎯 立即行动：获取免费在线演示！
 不要再把时间浪费在那些不好用的旧工具上了。现在就升级你的海外流量获取能力！
 
-👉 **官方网站：** [点击访问 Facebook18 官网](https://www.facebook18.com/)
-💬 **TG 在线客服：** [联系 Telegram @Facebook181818](https://t.me/Facebook181818)
+👉 **官方网站：**https://sites.google.com/view/whatsapp-lead-deduplication/
+💬 **TG 在线客服：** https://sites.google.com/view/whatsapp-number-screening/
 
----
-*标签：#Facebook引流 #WhatsApp营销 #海外获客系统 #跨境电商引流 #自动化营销工具 #TikTok引流2026*
+
+
